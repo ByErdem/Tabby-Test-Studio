@@ -6,3 +6,8 @@ https://www.youtube.com/watch?v=rBmpnFxE4fg&t=104s
 
 You can download from here: 
 https://drive.google.com/open?id=1beTvrfTaMxPNUEQiUdKQVim7jWHdnJkH
+
+Also you need to register our web site for use tool, you can register from here. 
+Just we will use this informations for analytic reports.
+http://tabbytest.com/customer/Account/Login
+
